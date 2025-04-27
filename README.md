@@ -2,6 +2,8 @@
 
 **PurEco CFO: Aiden Schwab**
 
+![image](
+
 -------------------------------------------------
 
 Hello Everyone!!! I am Aiden Schwab, the CFO of PurEco. I focus on the company's financial affairs ensuring that the needs for our product have been met. 
