@@ -2,7 +2,7 @@
 
 **PurEco CFO: Aiden Schwab**
 
-![image](
+![image](https://github.com/Aid3n007/PurEco-CFO/blob/main/PurEco.png)
 
 -------------------------------------------------
 
